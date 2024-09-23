@@ -1,1 +1,1 @@
-დაფაზე ტექსტის დაწერა www.forumi.eu.org
+საწერი დაფა www.forumi.eu.org
